@@ -1,0 +1,1 @@
+![img](https://cardinalanticheat.github.io/documentation/static/images/banner.png)
