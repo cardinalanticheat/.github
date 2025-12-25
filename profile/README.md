@@ -1,1 +1,1 @@
-![img](https://cdn.micartey.dev/api/v1/download/blob/Cardinal_Banner_v1.png)
+![img](https://github.com/user-attachments/assets/72cf10f0-bd6e-4070-8068-dcf7e61a7b2c)
